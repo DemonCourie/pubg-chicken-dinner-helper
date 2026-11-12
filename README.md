@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=700&size=44&pause=500&color=C2A060&center=true&vCenter=true&width=1100&height=130&lines=PUBG+PC+HACK+2026;AIMBOT+%7C+ESP+%7C+LOOT+FINDER;WINNER+WINNER" alt="PUBG PC Hack 2026" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/643c80a6-32e9-46ba-90d9-0041e91e4b13" />
 
 <br/>
 
